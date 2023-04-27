@@ -1,11 +1,11 @@
 - 👋 Hi, I’m @kanakonanami
-- 🌱 May also call me Raphaella (They/Them)
+- 🌱 May also call me Raphaella/Qingquan
 - 📫 qingqx@uw.edu
 - 👀 I’m interested in Sociology and Statistics
 - 
 -
-- Outside of schoolwork, I enjoy making cocktails and cooking food.
-- I also plan to build a webpage for my cocktails in the future.
+- Outside of schoolwork, I enjoy cooking food, making cocktails, and drinking whiskies.
+- I also plan to build a webpage for sharing the knowledge of bartending in the future.
 - May include my recipes and some tricks.
 - ✨Drink Responsibily & Code Joyfully✨
 
